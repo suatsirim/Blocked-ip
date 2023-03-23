@@ -5063,4 +5063,6 @@ https://r20.rs6.net/
 https://vrwqngbod063ff9127b8599.hsvnutri.ru
 hsvnutri.ru
 rs6.net
+https://cm.naukri.com
+https://safetyform.pt
 
