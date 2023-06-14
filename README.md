@@ -5069,3 +5069,9 @@ https://safetyform.pt
 76.223.180.2
 157.112.152.25
 138.197.152.201
+http://hiperfdhaus.com 
+http://jirostrogud.com
+http://qweastradoc.com
+http://qweastradoc.com/gate.php
+http://connectzoomdownload.com/download/ZoomInstaller.exe
+https://connectzoomdownload.com/download/ZoomInstaller.exe
